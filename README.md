@@ -1,0 +1,1 @@
+Pavel Chistov 1C SpetsKurs Labs InfoBase
